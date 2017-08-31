@@ -1,0 +1,2 @@
+# TulipMania
+Bet on Crypto
